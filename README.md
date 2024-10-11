@@ -1,6 +1,6 @@
 # OKCLOUD机场官网地址
 
-最新地址：[okokcloud.net](https://okokcloud.com/index.php#/register?code=Oxk7Ws5k)
+最新地址：[okokcloud.net](https://okokcloud.top/#/register?code=Oxk7Ws5k)
 
 ## OKCLOUD介绍
 
